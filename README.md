@@ -1,5 +1,11 @@
 #Welcome to [2022.05.05] 1=1 token0,1,2 genesis
 
+[Humble REQUEST for #HELP] 1=1 token0,1,2 genesis
+https://1ae1.github.io/1equal1_webpage/
+@threadreaderapp unroll
+
+Thank you 🙏 for taking a few minutes to watch and read. Please feel free to share with your network. I  https://1ae1.github.io/1equal1_webpage/
+
 ##CREATED BY: Alejandra Salaverria a.k.a. @pyxtau @alejsala allyAlejandra
 ##DATE: 05-05-2022
 ##PURPOSE: 1=1 ONE_EQUAL_ONE; get readyPlayer1
@@ -29,7 +35,7 @@ Today, I am humble and ask for your help. Today, I am indigent, poor, broke, and
 
 In 2017, I incorporated in Florida, ArtCoVest. The idea was too early as an entrepreneurship venture. Blockchain provenance of physical art fractionalized, co-owned, providing access to masses to be Fine Art Collectors.  
 
-In 2021, I assessed that the time for COURAGE was NOW. ArtCoVest evolved into @ETHGlobal #HackMoney dotkittyskull.eth/ownyou.eth and #HackFS yasss.eth [https://alejandra-m-salaverria.com/] Ever since, the drag of 2017 has taken a different form. There is much I hope gets revealed to me, for now I keep adding days; for example, today is May04.d231+~277. My life has frozen in time. 
+In 2021, I assessed that the time for COURAGE was NOW. ArtCoVest evolved into @ETHGlobal #HackMoney dotkittyskull.eth/ownyou.eth and #HackFS yasss.eth [https://alejandra-m-salaverria.com/] Ever since, the drag of 2017 has taken a different form. There is much I hope gets revealed to me, for now I keep adding days; for example, today is May05.d232+~331. My life has frozen in time. 
 
 Humbly (and I will lie if not to state ashamed and embarrassed), I am asking for your help to buy a Casino Night Poker Ship valued at $1,000 each. You will help me keep the lights on by temporarily preventing condo foreclosure and homelessness by purchasing a token. 
 
