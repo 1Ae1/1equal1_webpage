@@ -1,37 +1,73 @@
-## Welcome to GitHub Pages
+#Welcome to [2022.05.05] 1=1 token0,1,2 genesis
 
-You can use the [editor on GitHub](https://github.com/1Ae1/1equal1_webpage/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+##CREATED BY: Alejandra Salaverria a.k.a. @pyxtau @alejsala allyAlejandra
+##DATE: 05-05-2022
+##PURPOSE: 1=1 ONE_EQUAL_ONE; get readyPlayer1
+##MANIFESTO PRINCIPLES: [Principles in Code]
+-Equality
+-Freedom
+-Opportunity
+-Data Sovereignty
+-Privacy
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+yes, AND
 
-### Markdown
+self-vowed to Protect and Defend 
+The Constitution of The United States of America
+and The Bill of Rights 
+… On March 1, 2022: I experienced violations of my, a US Citizen, Constitutional rights. Being a Social Impact Value Creator Entrepreneur Privacy Truth to Power Universal Human and Civil Rights Advocate Degenerate Art Lover does not make me popular. 
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
-```markdown
-Syntax highlighted code block
+#[2022.05.05] 1=1 token0,1,2 genesis
 
-# Header 1
-## Header 2
-### Header 3
+Thank you 🙏 for taking a few minutes to watch and read. Please feel free to share with your network. 
 
-- Bulleted
-- List
+There was a time I was nominated for the Social Corporate Responsibility Board of a firm for giving time, talent, and treasure to RobinHood Foundation, KIPP, New Museum, and United Way. For example, today 
+giving as KIPP NYC Associate Council Member, I would have typically attended Glenview Capitals' annual Casino Night benefiting KIPP NYC. 
 
-1. Numbered
-2. List
+Today, I am humble and ask for your help. Today, I am indigent, poor, broke, and the details of why are a matter for another time. Hint: NDA; cost to society, so even if I wanted, I can't speak. I struggle with asking anyone for help because I am proud, independent, skilled, and capable of work. Yet, life has not flowed any forward. 
 
-**Bold** and _Italic_ and `Code` text
+In 2017, I incorporated in Florida, ArtCoVest. The idea was too early as an entrepreneurship venture. Blockchain provenance of physical art fractionalized, co-owned, providing access to masses to be Fine Art Collectors.  
 
-[Link](url) and ![Image](src)
-```
+In 2021, I assessed that the time for COURAGE was NOW. ArtCoVest evolved into @ETHGlobal #HackMoney dotkittyskull.eth/ownyou.eth and #HackFS yasss.eth [https://alejandra-m-salaverria.com/] Ever since, the drag of 2017 has taken a different form. There is much I hope gets revealed to me, for now I keep adding days; for example, today is May04.d231+~277. My life has frozen in time. 
 
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
+Humbly (and I will lie if not to state ashamed and embarrassed), I am asking for your help to buy a Casino Night Poker Ship valued at $1,000 each. You will help me keep the lights on by temporarily preventing condo foreclosure and homelessness by purchasing a token. 
 
-### Jekyll Themes
+Given my current financial demise, today, I scribe the contract via @opensea and @polygon (I don't have funds for gas to mint on @Ethereum). That said, as committed on video recording, upon sale, I will:
+mint physical token as NFT on Ethereum blockchain
+deliver physical token 
+donate 10% to KIPP
+In addition, I invite you to join me on the journey to nextEraBuild 1=1 ONE_EQUAL_ONE; get readyPlayer1. 
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/1Ae1/1equal1_webpage/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+CREATED BY: Alejandra Salaverria a.k.a. @pyxtau @alejsala allyAlejandra
+DATE: 05-05-2022
+PURPOSE: 1=1 ONE_EQUAL_ONE; get readyPlayer1
+MANIFESTO PRINCIPLES: [Principles in Code]
+-Equality
+-Freedom
+-Opportunity
+-Data Sovereignty
+-Privacy
 
-### Support or Contact
+yes, AND
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+self-vowed to Protect and Defend 
+The Constitution of The United States of America
+and The Bill of Rights 
+… On March 1, 2022: I experienced violations of my, a US Citizen, Constitutional rights. Being a Social Impact Value Creator Entrepreneur Privacy Truth to Power Universal Human and Civil Rights Advocate Degenerate Art Lover does not make me popular. 
+
+I anticipate you may need time to think and probably have a few questions. There is a lot to unpack in this short video and manuscript. I am happy to connect. My contact information is: allyalejandra@pm.me 
+Facebook: https://www.facebook.com/alejandra.m.salaverria 
+Twitter: https://twitter.com/AlejSala yes, AND https://twitter.com/pyxtau
+LinkedIn: https://www.linkedin.com/in/alejandra/ 
+OpenSea: https://opensea.io/collection/pyxtau-collection 
+https://opensea.io/collection/snippetstories
+
+Thank you for your empathy, care, and support. I am excited to engage on this journey together. 
+
+With gratitude and loving-kindness, 
+Alejandra
+
+
+
+
