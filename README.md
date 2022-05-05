@@ -1,15 +1,17 @@
-#Welcome to [2022.05.05] 1=1 token0,1,2 genesis
+Welcome to 1=1 token0,1,2 genesis
 
 [Humble REQUEST for #HELP] 1=1 token0,1,2 genesis
-https://1ae1.github.io/1equal1_webpage/
+https://1ae1.github.io/1equal1_webpage/ 
+https://www.youtube.com/channel/UCnX50kQbgttOk2hg5u1OVmA (5min:56sec video)
+
 @threadreaderapp unroll
 
 Thank you 🙏 for taking a few minutes to watch and read. Please feel free to share with your network. I  https://1ae1.github.io/1equal1_webpage/
 
-##CREATED BY: Alejandra Salaverria a.k.a. @pyxtau @alejsala allyAlejandra
-##DATE: 05-05-2022
-##PURPOSE: 1=1 ONE_EQUAL_ONE; get readyPlayer1
-##MANIFESTO PRINCIPLES: [Principles in Code]
+CREATED BY: Alejandra Salaverria a.k.a. @pyxtau @alejsala allyAlejandra
+DATE: 05-05-2022
+PURPOSE: 1=1 ONE_EQUAL_ONE; get readyPlayer1
+MANIFESTO PRINCIPLES: [Principles in Code]
 -Equality
 -Freedom
 -Opportunity
